@@ -1,2 +1,2 @@
 # naming
-naming repo
+naming repo telugu guys
